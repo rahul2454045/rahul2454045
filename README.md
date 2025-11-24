@@ -38,8 +38,8 @@
 
 ### 🔗 Connect with Me
 
-- ✉ Email: *your-email@example.com*
-- 🔗 LinkedIn: (Add link here)
+- ✉ Email: gomaladu1212@gmail.com
+- 🔗 LinkedIn: https://www.linkedin.com/in/rahul-meena-833abb324/
 
 ---
 
